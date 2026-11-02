@@ -2,14 +2,14 @@
 
 
 
-## ㅤㅤㅤㅤGREETINGS
+## ㅤㅤㅤㅤᧁ𐑾ᰰ᜔࣮ࣳꫀꫀ𝚝ᤡۣ֔ۧ҄҄᪲į𝚗۪۪ۣܳٗ֗ᧁ𝚂
 
-╰┈  .julian or shify ꯴ 17 y.o. || .He / him
+╰┈  .juℓį𐐼𝚗۪۪ۣܳٗ֗ 𑄈⵿𐑾ᰰ᜔࣮ࣳ 𝚂ḣį𝐟ყ ꯴ 17 ყ.𑄈⵿. || .Hꫀ / ḣįꭑ
        
-  > .bpd Weirdo with Bipolar & ADHD 
+  > .B𝓟D Wꫀį𐑾ᰰ᜔࣮ࣳd𑄈⵿ 𝞈į𝚝ᤡۣ֔ۧ҄҄᪲ḣ Bįթ𑄈⵿ℓ𐐼𐑾ᰰ᜔࣮ࣳ & ADHD 
 
 
 
 
 
-## > .fuck you
+## > .𝐟u᥋ƙꠥ ყ𑄈⵿u
