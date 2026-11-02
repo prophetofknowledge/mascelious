@@ -1,12 +1,12 @@
-## ![photo_2026-02-03_19-47-39](https://github.com/user-attachments/assets/7d8eea26-8636-4580-8cf1-072c173a03a8)
+## <img width="437" height="185" alt="-5422449207261469598_120" src="https://github.com/user-attachments/assets/d250ed27-2dc2-466f-9b16-2b00ae7e5f0f" />
 
 
 
 ## ㅤㅤㅤㅤGREETINGS
 
-╰┈  .Delain or sp8 ꯴ 17 y.o. || .He / him
+╰┈  .julian or shify ꯴ 17 y.o. || .He / him
        
-  > .Autistic Weirdo with Bipolar ADHD & amnesia
+  > .bpd Weirdo with Bipolar & ADHD 
 
 
 
